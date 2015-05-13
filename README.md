@@ -1,1 +1,5 @@
 # GittingStuffDone
+Joel - 
+Shruti - 
+VJ - 
+
